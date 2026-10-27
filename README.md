@@ -1,7 +1,7 @@
 
 # Hi, I'm Prachi Kumari 👋
 
-🎓 First-Semester B.Tech CSE Student
+🎓 First-Year B.Tech CSE Student
 
 Welcome to my GitHub profile!
 
